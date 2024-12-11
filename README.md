@@ -1,1 +1,1 @@
-# Advancing-Wind-Energy-Efficiency-Pathways-to-a-Greener-Tomorrow-
+# Advancing-Wind-Energy-Efficiency-Pathways-to-a-Greener-Tomorrow
